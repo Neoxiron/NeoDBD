@@ -1,0 +1,3 @@
+- 👋 Hi, I’m NeoDBD (You can also call me Neo, or Jean)
+- 👀 I’m interested in game and windows tweaking as well as optimization!
+- 📫 You can reach me on discord at NeoDBD_
